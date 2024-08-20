@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudiante de 6to semestre de ciencias de la computación e inteligencia artificial<br>Proactivo, con notables habilidades comunicativas y de relacionamiento, trabajo en equipo,<br>responsable y con deseo de crecimiento personal y profesional<br>En búsqueda de oportunidades de vinculación al mundo laboral.
+Estudiante de 8to semestre de ciencias de la computación e inteligencia artificial<br>Proactivo, con notables habilidades comunicativas y de relacionamiento, trabajo en equipo,<br>responsable y con deseo de crecimiento personal y profesional<br>En búsqueda de oportunidades de vinculación al mundo laboral.
 
 
 ## 🌐 Socials:
